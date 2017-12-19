@@ -1,12 +1,11 @@
 آموزش نصب ربات تبلیغاتی 
-در [کانال تلگرامی](https://telegram.me/TeleSuperiorTm)  قرار داده شده 
-لطفا با مراجعه به کانال از آموزش ساخت ربات مستفید بشید
+در [کانال تلگرامی](https://telegram.me/i_teach)  قرار داده شده 
+امیدوارم با مراجعه به کانال از آموزش ساخت ربات لذت کافی را ببرید
  
-[کانال ما](https://telegram.me/TeleSuperiorTm)
+[کانال ما](https://telegram.me/i_teach)
 
-#Opend by 
-# [Rashid](https://telegram.me/Rashidalizada1)
-# AND
-# [AMIRALI](https://telegram.me/MardeMajazi)
+# Open By 
 
-# Fuck BG Team😂
+# [Xayan](https://telegram.me/Xayan)
+
+# FUCK U MAN😂
